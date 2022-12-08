@@ -5,3 +5,5 @@ https://youtu.be/O1k3BYAYd2w
 World Bank Group. “World Bank Group Commitments on Disability-Inclusive Development.” World Bank, World Bank Group, 16 Sept. 2020, https://www.worldbank.org/en/topic/socialsustainability/brief/world-bank-group-commitments-on-disability-inclusion-development. 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AEuUvanPyaA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 https://www.progressivelifestylesinc.org/
+https://www.linkedin.com/jobs/search/?currentJobId=3379450155&keywords=physical%20disabilites&refresh=true
+https://www.facebook.com/nchpad/
