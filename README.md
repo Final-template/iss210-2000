@@ -11,3 +11,4 @@ Salge, Martina. “Ninercommons.charlotte.edu.” Reducing Disability Discrimina
 “Combating Disability Discrimination in the Workplace.” Project WHEN, 2021, https://projectwhen.org/resources/combating-disability-discrimination-in-the-workplace/
 Karen Clay, 2021, https://karenclay.org/
 Smith, Kyle D. “Disability Discrimination Laws in the California Workplace (2022).” Work Lawyers RSS, 4 Aug. 2022, https://www.worklawyers.com/disability-discrimination-california/ 
+https://www.cdc.gov/ncbddd/disabilityandhealth/stories.html. CDC. “Disability & Health Stories from People Living with a Disability”. September 16, 2020
