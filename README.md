@@ -7,3 +7,7 @@ https://www.progressivelifestylesinc.org/
 https://www.linkedin.com/jobs/search/?currentJobId=3379450155&keywords=physical%20disabilites&refresh=true
 https://www.facebook.com/nchpad/
 https://twitter.com/NCHPAD
+Salge, Martina. “Ninercommons.charlotte.edu.” Reducing Disability Discrimination in the Workplace, 2018, https://ninercommons.charlotte.edu/islandora/object/etd:1943/datastream/PDF/download/citation.pdf 
+“Combating Disability Discrimination in the Workplace.” Project WHEN, 2021, https://projectwhen.org/resources/combating-disability-discrimination-in-the-workplace/
+Karen Clay, 2021, https://karenclay.org/
+Smith, Kyle D. “Disability Discrimination Laws in the California Workplace (2022).” Work Lawyers RSS, 4 Aug. 2022, https://www.worklawyers.com/disability-discrimination-california/ 
